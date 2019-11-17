@@ -8,4 +8,4 @@ Video availalble at [here](https://drive.google.com/open?id=1-yZPJWOBcypihyAOEfU
 
 Photos availalble at [here](https://drive.google.com/open?id=1bGaD7x2tcDda-yXxvAn32TnfeXxila-C)
 
-Report availalbel at [here](https://drive.google.com/open?id=111Uf9XuYDKi8vbxkkhPSERw33Q_5HPr-)
+Report availalble at [here](https://drive.google.com/open?id=111Uf9XuYDKi8vbxkkhPSERw33Q_5HPr-)
